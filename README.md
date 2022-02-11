@@ -1,1 +1,1 @@
-<h3> Habe mein bestes gegeben nicht die ziele ereicht die ich eigentlich erreichen wollte</h3>
+<h3> Habe mein bestes gegeben nicht die ziele erreicht die ich eigentlich erreichen wollte</h3>
